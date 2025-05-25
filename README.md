@@ -1,5 +1,5 @@
 # 💫 About Me:
-I recently graduated from the University of Southern California with a B.S. in Quantitative Biology
+👩🏻‍🎓 I recently graduated from the University of Southern California with a B.S. in Quantitative Biology
 
 
 ## 🌐 Socials:
